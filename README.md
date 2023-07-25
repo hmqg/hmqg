@@ -1,5 +1,4 @@
 # 💫 About Me:
-Discord: oin#8517
 https://t.me/zacciii
 
 
